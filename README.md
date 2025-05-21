@@ -92,4 +92,3 @@ B.Tech. | Material Science and Engineering
 IIT Kanpur  
 Email: *[adityasaraf.adi15@gmail.com]*
 
----
